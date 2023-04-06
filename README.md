@@ -52,4 +52,7 @@
 
 如果您对本项目有任何问题或需要更新项目，请联系：
 ## 企鹅：
+## 企鹅号: 80258153
+
 [![ppou5As.png](https://s1.ax1x.com/2023/04/06/ppou5As.png)](https://imgse.com/i/ppou5As)
+
